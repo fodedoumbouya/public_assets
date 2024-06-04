@@ -7,3 +7,7 @@ https://github.com/fodedoumbouya/public_assets/assets/47141813/ea8e0695-8b1c-4bc
 ![Rainbow](https://github.com/fodedoumbouya/public_assets/assets/47141813/846e562e-b014-4754-b9a4-189537731507)
 
 ![launcher](https://github.com/fodedoumbouya/public_assets/assets/47141813/ca6fc16b-a9d3-47eb-8869-e633c419b97a)
+
+
+
+[cv.pdf](https://github.com/user-attachments/files/15567803/cv.pdf)
